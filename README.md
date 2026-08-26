@@ -2,10 +2,11 @@
 
 > **Live Local Preview**: Open `index.html` in your browser.  
 > **Repository**: `cj-chijioke-electrical-company`  
-> **Physical Address**: Old Ogbo Osisi Market, Close to Wetheral Junction, Owerri 460281, Imo State  
+> **Physical Address**: CJ. Chijioke Plaza, Old Ogbo Osisi Market, Close to Wetheral Junction, Owerri 460281, Imo State  
 > **Google Plus Code**: `F2FQ+444, Owerri 460281, Imo`  
 > **Hotline / WhatsApp**: `0803 401 8669` / `+234 803 401 8669`  
 > **Google Maps Profile**: 4.6★ (24 Verified Reviews)  
+> **Storefront Brand Colors**: Bold Red (`#DC2626`) & Pure White (`#FFFFFF`) — modeled after the physical **CJ. CHIJIOKE PLAZA** building title card.  
 
 ---
 
